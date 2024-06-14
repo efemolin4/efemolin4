@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @efemolin4
-- 👀 I’m interested in Marketing andtechnology 
+- 👀 I’m interested in Marketing and technology 
 - 🌱 I’m currently learning ABM
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
