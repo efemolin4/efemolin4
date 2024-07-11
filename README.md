@@ -2,7 +2,7 @@
 - 👀 I’m interested in Marketing and technology 
 - 🌱 I’m currently learning ABM
 - 💞️ I’m looking to collaborate on 
-- 📫 write me an email at felipe.molina.catalan@3it.cl
+- 📫 write me an email at felipe.molina.catalan@gmail.com
 
 
 <!---
