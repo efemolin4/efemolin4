@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @efemolin4
 - 👀 I’m interested in Marketing and technology 
 - 🌱 I’m currently learning ABM
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on demand generation strategies for IT companies. 
 - 📫 write me an email at felipe.molina@mqlab.io
 
 
